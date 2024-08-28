@@ -8,4 +8,4 @@
 
 ### Pode entrar em contato comigo
 - *Email:* 00001137435173sp@al.educacao.sp.gov.br
-- *Linkedln:* @MariaVeloso
+
