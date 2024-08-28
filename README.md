@@ -2,7 +2,7 @@
 
 **Meu nome é Maria Veloso**
 - Sou Estudante 
-- Estou me desenvolvendo nas liguagens e ferramentas de tecnologia
+- Estou me desenvolvendo nas linguagens e ferramentas de tecnologia
 - Utilizo esse espaço para minha organização e compatilhamento dos meus projetos desenvolvidos
 
 
