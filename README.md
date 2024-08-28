@@ -1,4 +1,4 @@
-## Seja muito bem-vindo(a) ao meu perfil🥰
+## Seja bem-vindo(a) ao meu perfil🥰
 
 **Meu nome é Maria Veloso**
 - Sou Estudante 
